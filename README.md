@@ -1,16 +1,23 @@
-## Hi there 👋
+</div>
 
-<!--
-**thespiusgreen/thespiusgreen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<sub>[ The god of Storytelling freezes. ] " It's me? It's... about me? " </sub> 
+
+<sub> " The story of Byella and Styella... It's about me? </sub> 
+<sub> You're telling me that the romance i cut from " Oh partner mine... " </sub> 
+
+<sub> ...The tension i scrubbed from the script, </sub> 
+<sub> The loved i erased </sub> 
+<sub> ... Thespius wrote them about us? " </sub> 
+
+
+
+![](https://files.catbox.moe/6yia16.png)
+<sub> [ Suddenly, the God of Storytelling doesn't seem quite so large. ] </sub> 
+
+[main account](https://github.com/teamchaotix)    [strawpage](https://clickyclack.straw.page)
+
+</div>
